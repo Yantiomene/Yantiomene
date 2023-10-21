@@ -1,3 +1,5 @@
+![gh_cover](https://github.com/Yantiomene/Yantiomene/assets/49885974/f781c550-c282-4d53-8599-c6624c856a82)
+
 ### Hi there 👋
 
 <!--
